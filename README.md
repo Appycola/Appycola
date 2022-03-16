@@ -5,6 +5,7 @@
 - 📫 How to reach me ...
 
 Beginner Quora and writer fffs
+Also very good talker namaste 🙏 so
 <!---
 Appycola/Appycola is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
